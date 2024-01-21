@@ -1,1 +1,1 @@
-Projects Completed By Me From The Coursera "Google Cybersecurity Specialization" Certification
+Projects Completed By Me
